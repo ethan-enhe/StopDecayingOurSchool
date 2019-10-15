@@ -9,6 +9,12 @@
                                         font-size: px; color: #; text-decoration:  ;">
                                         </a>   
 
+## 禁止炒作
+
+![](https://i.loli.net/2019/10/15/wdpriquvQobjlWx.jpg)
+
+无论自媒体的用意是什么，本学校内发生的事件禁止进行炒作，以免影响学校的社会面貌。
+
 -----------------------------
 
 ## -I - 道歉
